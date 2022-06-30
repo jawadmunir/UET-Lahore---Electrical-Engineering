@@ -1,1 +1,1 @@
-# UET-Lahore---Electrical-Engineering
+# UET Lahore - Electrical-Engineering
